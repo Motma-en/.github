@@ -1,3 +1,3 @@
-# Motma'en / مطمئن - Peace of heart and mind!
+# ✨ Motma'en (مطمئن)
 
-Preserving culture, and family-friendly environment on the internet.
+## Peace of heart and mind via preserving and promoting pro-friendly cultural environment on the internet.
