@@ -1,3 +1,3 @@
 # ✨ Motma'en (مطمئن)
 
-## Peace of heart and mind via preserving and promoting a pro-family cultural environment on the internet.
+## Peace of heart and mind via preserving and promoting the pro-family cultural environment on the internet.
